@@ -1,5 +1,4 @@
 remote_theme: pages-themes/minimal@v0.2.0
 plugins:
 - jekyll-remote-theme
-title: Clayamics
-description: Funky clay creations for charity; a clay and pottery small business
+<h1>See what we have!</h1>
