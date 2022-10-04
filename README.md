@@ -23,8 +23,6 @@ We make our own company pieces as well as custom pieces!
 ![IMG_5422.jpg](/IMG_5422.jpg)
 ![IMG_5423.jpg](/IMG_5423.jpg)
 #### Sold!
-![IMG_5424.jpg](/IMG_5424.jpg)
-#### Sold!
 ![IMG_5425.jpg](/IMG_5426.jpg)
 #### Sold!
 ![IMG_5426.jpg](/IMG_5426.jpg)
