@@ -3,7 +3,7 @@
 
 We are a student run small business dedicated to helping the children at the ศูนย์เยาวชนคลิตี้ล่าง Youth center in Thailand.
 
-We make our own company pieces as well as custom pieces!
+We make our own company pieces as well as custom pieces! Get in touch with us *[here](https://www.instagram.com/clayamics/)*
 
 
 ### See what we have to offer:
