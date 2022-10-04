@@ -7,6 +7,6 @@ We make our own company pieces as well as custom pieces!
 
 
 #### See what we have to offer:
--
+- ![IMG_5433.jpg](/IMG_5433.jpg)
 -
 -
